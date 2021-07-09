@@ -1,4 +1,4 @@
-# Hi, My name is Zaute!
+Hi, I am Zaute!
 
 - Official Telegram Channel: [Subscribe Now](https:telegram.dog/zautekm)
 - Official Bots Projects Channel: [See here](https://t.me/c/1481808444/134)
