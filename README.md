@@ -1,7 +1,7 @@
-Hi, I am Zaute!
+#Hi, I am Zaute!
 
-- Official Telegram Channel: [Subscribe Now](https:telegram.dog/zautekm)
-- Official Bots Projects Channel: [See here](https://t.me/c/1481808444/134)
+- Telegram Channel: [Subscribe Now](https:telegram.dog/zautekm)
+- Bots Projects: [See here](https://t.me/c/1481808444/134)
 - More Bots Lists: [Click here](https://t.me/c/1389316277/37)
  [⚠️👉 Do not Click here 👈🔥](https://t.me/iZaute/6)
 
