@@ -1,6 +1,6 @@
 # Hi, I am Zaute!
 
-- Telegram Channel: [Subscribe Now](https:telegram.dog/zautekm)
+- Telegram Channel: [Tap here](https:telegram.dog/zautekm)
 - Bots Projects: [See here](https://t.me/c/1481808444/134)
 - More Bots Lists: [Click here](https://t.me/c/1389316277/37)
 
